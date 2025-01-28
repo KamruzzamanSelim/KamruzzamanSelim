@@ -34,5 +34,4 @@ I'm actively seeking partnerships in:
 **Pronouns:** He/Him
 
 ---
-
-![Data Analytics](https://media.giphy.com/media/LpiVeIRgrq6a9jtSo7/giphy.gif)
+![Data Analytics](https://media.giphy.com/media/3oKIPEqDGUULpEU0aQ/giphy.gif)
